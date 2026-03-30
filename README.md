@@ -1,4 +1,4 @@
 # About me 
 
-- 🔭 I’m currently working on me myselfe and I
+- 🔭 I’m currently working on me myself and I
 
