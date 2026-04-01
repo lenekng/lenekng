@@ -1,4 +1,4 @@
 # About me 
 
-- 🔭 I’m currently working on me myself and I
+Physics M.Sc. student interested in nanotechnology
 
